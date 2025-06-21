@@ -56,5 +56,5 @@ If you're a florist, partner, or developer - feel free to get in touch!
 
 ---
 
-🔗 [Visit our Berlin site](https://blumenhorizon.de)  
-📩 Contact: service@blumenhorizon.de  
+🔗 [Visit our Main site](https://europeflowers.shop)  
+📩 Contact: service@europeflowers.shop
